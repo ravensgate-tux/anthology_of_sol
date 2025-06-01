@@ -27,6 +27,18 @@
 
 ---
 
+## 📘 原典情報
+
+本Zineで取り上げている講義は、以下の書籍に収録された内容に基づいて再構成・翻訳されたものです。
+
+📖 *An Anthology of Occult Wisdom*  
+by Dolores Ashcroft-Nowicki  
+[Amazon.com 商品ページ](https://www.amazon.com/Anthology-Occult-Wisdom-Dolores-Ashcroft-Nowicki/dp/0967752345)
+
+※ 本Zineは営利目的ではなく、学習・教育目的の範囲内で要約・翻訳・再構成を行っております。
+
+---
+
 ## 🕯️ 訳者について
 
 > **知られざる呪術師（Le Sorcier Inconnu）**  
