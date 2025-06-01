@@ -77,7 +77,7 @@
 本Zineで取り上げている講義は、以下の書籍に収録された内容に基づいて再構成・翻訳されたものです。
 
 <div align="left">
- <img src="anthology-01.jpg" width="100">
+ <img src="anthology.jpg" width="100">
 </div>
 
 📖 *An Anthology of Occult Wisdom*  
