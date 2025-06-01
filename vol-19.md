@@ -76,6 +76,7 @@ by Dolores Ashcroft-Nowicki
 [Amazon.com 商品ページ](https://www.amazon.com/Anthology-Occult-Wisdom-Dolores-Ashcroft-Nowicki/dp/0967752345)
 
 ※ 本Zineは営利目的ではなく、学習・教育目的の範囲内で要約・翻訳・再構成を行っております。
+
 ---
 
 ## ⚖️ 注意事項
